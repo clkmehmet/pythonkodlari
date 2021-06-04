@@ -1,1 +1,1 @@
-# pythonkodlari
+# İletişim : caliktrmehmet@gmail.com
